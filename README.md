@@ -1,1 +1,1 @@
-I'am BattleTonk and i do random shit
+I'm BattleTonk and i do random shit
